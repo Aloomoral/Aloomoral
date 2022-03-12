@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aloomoral
+- 👀 I’m interested in a lot of stuff, don't mind me lol
+- 🌱 I’m currently learning how to live
+- 💞️ I’m looking to collaborate on a lot of stuff, as I already noticed before
+- 📫 How to reach me: abcdefghi_lmnopqrstuvwxyz on IG ;)
